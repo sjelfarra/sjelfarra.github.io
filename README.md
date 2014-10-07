@@ -4,5 +4,5 @@ Welcome, peeps
 
 ### Meet my fam
 
-![the crew](http://imgur.com/1DfHWIF)
+![the crew](http://i.imgur.com/1DfHWIF.jpg)
 
