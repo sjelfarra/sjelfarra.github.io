@@ -2,7 +2,7 @@
 
 Welcome, peeps
 
-### photo of Scotland
+### Meet my fam
 
-![Scotand](http://imgur.com/gallery/y13SBab)
+![the crew](http://imgur.com/1DfHWIF)
 
